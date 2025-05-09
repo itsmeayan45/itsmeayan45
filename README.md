@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on AI-ML<br>🌱 I’m currently learning Cyber Security<br>💬 Ask me about CTF<br>⚡ Fun fact is growing up as an introvert
+🔭 I’m currently working on AI-ML<br>🌱 I’m currently learning Cyber Security<br>💬 Ask me about anything except engineering :)<br>⚡ Fun fact is growing up as an introvert
 
 
 ## 🌐 Socials:
