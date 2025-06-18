@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on AI-ML<br>🌱 I’m currently learning Cyber Security<br>💬 Ask me about anything, i will just ask AI model and give you answers :)<br>⚡ Life is short , make it shorter!!
+🔭 I’m currently working on AI-ML<br>🌱 currently learning nothing<br>💬 Ask me about anything, i will just ask AI and give you answers :)<br>⚡ Life is short , make it shorter!!
 
 
 ## 🌐 Socials:
