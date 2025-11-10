@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Machine Learning<br>👯 I’m looking to collaborate on group project<br>🌱 I’m currently learning Generative AI<br>💬 Ask me about Cricket , especially about Rohit Sharma<br>
+🔭 I’m currently working on Machine Learning<br>👯 I’m looking for Job<br>🌱 I’m currently learning Generative AI<br>💬 Ask me anything about Cricket<br>
 
 
 ## 🌐 Socials:
