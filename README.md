@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Machine Learning<br>👯 I’m looking for Internships<br>🌱 I’m currently learning Generative AI<br>💬 Ask me anything about Cricket<br>
+🔭 I’m currently working on Generative Ai<br>👯 I’m looking for Internships<br>🌱 I’m currently learning Agentic AI<br>💬 Ask me anything about Cricket<br>
 
 
 ## 🌐 Socials:
