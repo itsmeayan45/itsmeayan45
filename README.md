@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Generative AI<br>👯 I’m looking for Paisa<br>🌱 I’m currently learning Agentic AI, n8n workflows<br>💬 Ask me anything about Cricket
+🔭 I’m currently working on Generative AI<br>👯 Everything belongs to God<br>🌱 I’m currently learning Agentic AI, n8n workflows<br>💬 Ask me anything about Cricket
 
 
 ## 🌐 Socials:
